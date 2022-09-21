@@ -1,4 +1,4 @@
-- 👋oi, meu nome é @eularissol177
+- 👋😄  oi, meu nome é @eularissol177
 - 👀 meu imail de contato é larisa.oliveira@escola.pr.gov.br
 - 🌱 estou interessada a aprender novas linguagens.
 - 💞️ recentemente estou aprendendo a programar no JavaScript e Scratch
